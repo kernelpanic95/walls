@@ -1,5 +1,8 @@
 # Wallpaper collection
 
-My personal wallpaper collection that fits best to tiling window managers.
+my wallpapers.
+always updating.
 
+WARNING!
+there are some NSFW stuff ;)
 
